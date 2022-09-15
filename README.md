@@ -1,4 +1,5 @@
 Sobre ser gay
+
 No dia 25 março é comemorado o Dia Nacional do Orgulho Gay, que
 lembra a luta da comunidade LGBTT contra o preconceito e a
 intolerância.
