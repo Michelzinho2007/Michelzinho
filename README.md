@@ -11,24 +11,31 @@ escola, no trabalho, praia ou nas ruas. Apenas sendo pessoas.
 Independente da cor, credo, sexo, profissão ou classe social: 10
 pessoas falam sobre orgulho de ser gay:
 Dia do Orgulho Gay remete à rebelião de Stonewall, quando grupos homossexuais enfrentaram a
-polícia nas ruas de Nova York1 – “Tenho tanto motivos pra me orgulhar. Tenho orgulho porque antes
+polícia nas ruas de Nova York
+
+1 – “Tenho tanto motivos pra me orgulhar. Tenho orgulho porque antes
 de qualquer moral/bom costume eu respeito o que sinto e o que sou.
 Tenho orgulho porque me tornei um pessoa que sabe respeitar a
 diferença. Quando você é minoria, você luta por todas as minorias e
 isso se torna grande.”
+
 2 – “tenho orgulho de, sendo gay, ter uma cabeça livre de
 preconceitos, da capacidade de entender o outro além do ser gay,
 trans ou hétero”
+
 3 – “É isso. Eu sou gay e isso é parte de mim, é o que eu sou. A gente
 tem que gostar da gente exatamente assim, não por ser gay ou
 hétero, mas por ser humano.”
+
 4 – “Porque eu jamais seria quem eu sou se não tivesse passado por
 tudo que passei. Nas dificuldades entendi que a causa não está ganha
 e isso me dá forças pra quebrar um novo paradigma todos os dias”.
+
 5 – “Tenho orgulho de ser gay porque é assim que me sinto pleno em
 meus sentimentos e desejos. É assim que me sinto verdadeiro comigo
 mesmo. Meu orgulho é de não negar essa minha essência, que já
 neguei em tempos atrás. ”
+
 6 – “Tenho orgulho de ser gay porque isso me mantém alerta pras
 desigualdades sociais. Muitos gays hoje em dia se veem numa
 situação confortável um pouco pela condição sócio econômica em q se
@@ -36,12 +43,14 @@ encontram. Mas essa liberdade de expor uma parte do q são vem de
 uma luta que na verdade ainda não se encontra vencida. O orgulho é
 importante pra não perde de vista nem o passado e a historia nem as
 possibilidades de mudança (e melhora) no futuro”.
+
 7 – “Tenho orgulho de ser gay porque cada dia vivido é um dia
 sobrevivido, uma lição de resistência. E mesmo com tantas formas de
 opressão ainda consigo sorrir e querer bem mais do que me
 impuseram durante a vida toda. Tenho orgulho porque me mereço,sinto-me, vejo-me. Percebo que o que há de mais especial em mim é o
 que há (ou deveria haver) em qualquer outra pessoa: a capacidade de
 amar. Minha (r)existência é minha militância.”
+
 8 – “Tenho orgulho da coragem que tenho em me assumir à uma
 família extremamente preconceituosa e religiosa. Sentar na frente dos
 seus pais, sabendo da criação que eles foram submetidos, exige
@@ -50,6 +59,7 @@ combater o preconceito, por acreditar em mundo melhor. Tenho
 orgulho em poder amar de forma legitima, pois o amor não depende
 de cor,raça,credo ou classe social. Muitos escondem o seu verdadeiro
 eu, tenho orgulho em poder mostrar quem eu sou.”
+
 9 – “Ser gay significa ter forças para se levantar da cama todo dia e
 enfrentar o ódio e a ignorância no trabalho, na escola, em casa, no
 mercado, nas ruas. Significa defender, muitas vezes de forma
@@ -58,6 +68,7 @@ derramar o próprio sangue para evitar que mais sangue seja
 derramado por mãos impetuosas. Se isso não é motivo de orgulho, se
 sorrir enquanto todos pedem para que você chore não é motivo de
 orgulho, não sei mais o que pode ser.”
+
 10 – “O Brasil está construindo sua recente democracia. Essa jovem
 de 26 anos permite a todos cidadãos se organizarem e manifestar
 suas demandas. E o regime democrático é o único que toma como
